@@ -1,2 +1,2 @@
 # Nazmul
-I want to buisness and job
+I want to job
